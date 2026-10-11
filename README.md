@@ -1,5 +1,4 @@
- ![.](https://cdn.discordapp.com/attachments/972013824506986506/1558790462272184391/image.png?ex=6accb83f&is=6acb66bf&hm=69edafe51e4be8a705290bd9ded5099bfad36c621c4410e4fec51dcf8f738374&)
- <sub>ac: nojoki twt</sub> 
+ ![.](https://i.pinimg.com/1200x/31/5c/1b/315c1bfad6801e67c089fde0eac48c4f.jpg)
 ***
 > [!NOTE]
 typically the people i sit with are friends, but i enjoy jumping around spots.<br/>
